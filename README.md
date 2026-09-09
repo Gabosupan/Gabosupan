@@ -2,5 +2,6 @@
 𝓓𝓝𝓘: 𝒟𝒶𝓃𝒹𝓎'𝓈 𝓌𝑜𝓇𝓁𝒹, 𝒯𝒜𝒟𝒞, 𝒶𝓃𝓉𝒾𝓈...
 
 
+<img width="600" height="338" alt="gif sulong" src="https://github.com/user-attachments/assets/6bcc87f1-5fea-45ec-855b-3d661d0036a7" />
 
 ♡ 𝓃𝑜 𝓈𝑒 𝓆𝓊𝑒 𝓈𝓊𝒸𝑒𝒹𝒾ó, 𝓅𝑒𝓇𝑜 𝓂𝑒 𝓅𝑒𝓇𝒹í 𝑒𝓃 𝓉𝓊 𝓂𝒾𝓇𝒶𝒹𝒶.. ♡
