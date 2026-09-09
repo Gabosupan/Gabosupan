@@ -6,7 +6,8 @@
 
 ♡ 𝓃𝑜 𝓈𝑒 𝓆𝓊𝑒 𝓈𝓊𝒸𝑒𝒹𝒾ó, 𝓅𝑒𝓇𝑜 𝓂𝑒 𝓅𝑒𝓇𝒹í 𝑒𝓃 𝓉𝓊 𝓂𝒾𝓇𝒶𝒹𝒶.. ♡
 
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/923a0bbd-3c5b-4262-ac74-70a50f82a96f" />
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/74c86071-a2a9-4db1-9e73-19193f9bcc4b" />
+
 
 
 <img width="480" height="270" alt="gif sulong 2" src="https://github.com/user-attachments/assets/3ebd4690-a728-4087-a5ab-1ce846e77503" />
