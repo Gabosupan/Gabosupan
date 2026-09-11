@@ -13,4 +13,4 @@
 <img width="480" height="270" alt="gif sulong 2" src="https://github.com/user-attachments/assets/3ebd4690-a728-4087-a5ab-1ce846e77503" />
 
 ♡ 𝓼𝓲 𝓵𝓪 𝓿𝓲𝓭𝓪 𝓶𝓮 𝓭𝓪 𝓭𝓮 𝓷𝓾𝓮𝓿𝓸 𝓮𝓵 𝓹𝓵𝓪𝓬𝓮𝓻, 𝓿𝓸𝔂 𝓪 𝓿𝓸𝓵𝓿𝓮𝓻𝓽𝓮 𝓪 𝓫𝓮𝓼𝓪𝓻.. 𝓬𝓸𝓶𝓸 𝓪𝓺𝓾𝓮𝓵𝓵𝓪 𝓿𝓮𝔃 .. ♡
-<img width="400" height="500" alt="image" src="https://github.com/user-attachments/assets/261616a9-67b8-4528-8a88-6450b24810ac" />
+<img width="100" height="500" alt="image" src="https://github.com/user-attachments/assets/261616a9-67b8-4528-8a88-6450b24810ac" />
