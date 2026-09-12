@@ -18,8 +18,7 @@
 . ݁⋆ ۶ৎ ݁˖ . ݁────୨ৎ────‎ . ݁⋆ ۶ৎ ݁˖ . ݁────୨ৎ──── .
 
 
-
-<img width="1500" "568" alt="image" src="https://github.com/user-attachments/assets/0bb60b60-aa38-4c93-89b7-18e1829c7037" />
+<img width="1500" alt="image" src="https://github.com/user-attachments/assets/0bb60b60-aa38-4c93-89b7-18e1829c7037" />
 
 
 
