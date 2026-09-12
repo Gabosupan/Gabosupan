@@ -19,7 +19,7 @@
 
 
 
-<img width="1600" height="1600" alt="image" src="https://github.com/user-attachments/assets/cc9b575c-bdfb-432e-a67c-e801166d774b" />
+<img width="1500" "568" alt="image" src="https://github.com/user-attachments/assets/0bb60b60-aa38-4c93-89b7-18e1829c7037" />
 
 
 
