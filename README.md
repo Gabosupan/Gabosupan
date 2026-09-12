@@ -1,3 +1,4 @@
+<img width="1500" height="263" alt="image" src="https://github.com/user-attachments/assets/70584746-2190-49b6-8ec4-92dc9f3eb7c4" />
                                                                                   
 
  . ݁⋆ ۶ৎ ݁˖ . ݁────୨ৎ────‎ . ݁⋆ ۶ৎ ݁˖ . ݁────୨ৎ──── 
